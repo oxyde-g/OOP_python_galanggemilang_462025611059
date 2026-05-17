@@ -1,0 +1,2 @@
+# OOP_python_galanggemilang_462025611059
+tugas
